@@ -2,7 +2,7 @@
 
 - MTS @Oracle [2022-Present]
 - CSE @NITT [2018-2022]
-- Hans Zimmer, Ramin Djawadi :heart:
+- Intern @ConvInt.ai @Oracle @Fidelity Investments
 - [Medium](https://medium.com/@spamjaneya)
 - [LinkedIn](https://www.linkedin.com/in/anjaneya-tripathi-610234183/)
 
